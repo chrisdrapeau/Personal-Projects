@@ -1,5 +1,5 @@
-Created a custom statue of my head on a super jacked body that for some reason has three toes...
+Created a custom statue of my head on a super jacked body for my friend as a joke gift. 
 
-To create this, I had to 3d scan my head then merge the two files together after I found this other model on thingiverse. 
+To create this, I had to 3d scan my head then merged it with a file of the body I found on thingiverse. 
 
-Made this for a friend as a joke gift. 
+
